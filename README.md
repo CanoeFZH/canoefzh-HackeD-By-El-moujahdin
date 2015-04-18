@@ -1,7 +1,7 @@
 # canoefzh-HackeD-By-El-moujahdin
 to tell your GOV, to know about Palestine ...  
 
-事情是这样的：某一天(今天)我想看看我的[博客](canoefzh.com)去（好久没更新了)
+事情是这样的：某一天(今天)我想看看我的[博客](http://www.canoefzh.com)去（好久没更新了)
 然后看到了，为什么比我原来的博客酷了无数倍... 
 然后查了一下..    
 
