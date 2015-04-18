@@ -7,4 +7,8 @@ to tell your GOV, to know about Palestine ...
 canoefzh.com 
 为什么比我原来的博客酷了无数倍... 
 然后查了一下
-.. 
+..    
+
+[这个组织大约是3月底开始乱搞的]: http://www.ibtimes.co.uk/air-france-cyberattack-who-moujahidin-team-why-are-they-waging-cyber-jihad-1494807
+
+
