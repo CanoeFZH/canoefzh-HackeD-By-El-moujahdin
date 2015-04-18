@@ -9,6 +9,6 @@ canoefzh.com
 然后查了一下
 ..    
 
-[这个组织大约是3月底开始乱搞的]: http://www.ibtimes.co.uk/air-france-cyberattack-who-moujahidin-team-why-are-they-waging-cyber-jihad-1494807
+其实在这里看到了一个报告[这个组织大约是3月底开始乱搞的]: http://www.ibtimes.co.uk/air-france-cyberattack-who-moujahidin-team-why-are-they-waging-cyber-jihad-1494807
 
 
